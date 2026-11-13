@@ -1,0 +1,1 @@
+# aicrypro-gemini-assistant-2026
